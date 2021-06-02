@@ -1,2 +1,2 @@
-1.Playing😎
-2.Reading😎
+1. Playing😎
+2. Reading😎
